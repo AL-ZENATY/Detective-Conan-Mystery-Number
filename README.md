@@ -1,0 +1,1 @@
+# Detective-Conan-Mystery-Number
